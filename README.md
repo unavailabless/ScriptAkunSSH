@@ -1,0 +1,2 @@
+# ScriptAkunSSH
+( Nyolong Btw :v)
